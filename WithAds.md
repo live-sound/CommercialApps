@@ -17,11 +17,6 @@ We may disclose User Provided and Automatically Collected Information:
 
 You can stop all collection of information by the Application easily by uninstalling the Application.
 
-
-## Changes
-
-This Privacy Policy may be updated from time to time for any reason. We will notify you of any changes to our Privacy Policy by posting the new Privacy Policy here and informing you via email or text message. You are advised to consult this Privacy Policy regularly for any changes, as continued use is deemed approval of all changes. You can check the history of this policy by clicking here.
-
  
 ## Contact us
 
